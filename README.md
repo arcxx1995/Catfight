@@ -141,8 +141,8 @@ Have an idea or want to build a feature? PRs are welcome!
 
 ## 📫 Contact
 
-Created with love by [Your Name].  
-DM on Twitter [@yourhandle](https://twitter.com/yourhandle) or email at `your@email.com`.
+Created with love by [Arpan].  
+DM on Instagram [@spacekapow) or email at `arcxx1995@gmail.com`.
 
 ---
 
